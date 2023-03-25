@@ -1,4 +1,4 @@
-[![MasterHead](https://5.imimg.com/data5/SELLER/Default/2021/3/FN/ZR/KH/12125897/bbbbbb-500x1600.jpg)]
+[![MasterHead](https://5.imimg.com/data5/SELLER/Default/2021/3/FN/ZR/KH/12125897/bbbbbb-500x500.jpg)]
 
 # 💫 About Me:
 - 👋 Hi, I’m NANDHAGOPAN<br>- 👀 I’m interested in Web designing ...<br>- 🌱 I’m currently learning frontend...<br>- 💞️ I’m looking to collaborate with google or microsoft ...<br>- 📫 How to reach me  ~ nandhagopanunni@gmail.com
